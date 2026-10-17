@@ -10,3 +10,6 @@ Kesan selama INTRIVIA ini benar-benar membuka pikiran saya tentang dunia perkuli
 
 ## Kesan Pesan Cluster 13 Sejauh Ini
 Kesan saya untuk cluster ini cukup menyenangkan dan berjalan dengan baik.
+
+## Harapan Kulaih
+Harapan saya selama kuliah adalah dapat belajar dengan baik, mengasah keahlian di bidang jurusan saya, dan membangun pertemanan yang positif.
